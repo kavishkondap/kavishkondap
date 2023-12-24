@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋, I'm Kavish
 
 **I'm a programmer, engineer, researcher, and entrepreneur**
 
